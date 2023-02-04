@@ -1,1 +1,1 @@
-god is love
+money cant buy me love
